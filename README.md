@@ -1,0 +1,1 @@
+# NotRikkun.github.io
